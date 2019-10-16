@@ -4,15 +4,15 @@ Singapore, an island city-state off southern Malaysia, is a global financial cen
 
 ## To See/Do
 
-* 
+* garden by the bays
 
 ## To Eat/Drink
 
-*
+*satay, prawn noodle
 
 ## Parks
 
-*
+*botanical garden
 
 ## Additional links
 
